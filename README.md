@@ -1,1 +1,1 @@
-currency converter BITCH !!!!
+STONKS !!!!
